@@ -1,25 +1,26 @@
 #outline-dump.md
 
 -- INT Stella's bedroom - NIGHT
-    Stella brings Bella back to her people
+    Stella brings Bella back to her people. Bella begins to hum Twinkle Twinkle Little Star
 
 -- INT Stella's bedroom - NIGHT
-    Stella and Bella talk before going out of the window into space
+    Stella and Bella talk before sailing out of the bedroom window to begin their adventure.
 
 -- EXT Outer Space (Near Earth View) - NIGHT
-    Stella and Bella hurtle towards the stars as Earth looms large in the background. Stella scared at the suddeness of it all.
+    Stella and Bella hurtle towards the stars as Earth looms large in the background. Stella scared at the suddeness of it all but tells Bella she wants to continue on to Orion.
 
 -- EXT Interstellar Space (FAR FROM EARTH) - NIGHT
-    Stella and Bella continue in space. Earth is just one shiny dot in the background among many. ORION visible far ahead in the distance.
-    Gas, dust, and nothingness. Stella knows stars are large, so Bella makes Stella the size of the SUN! Stella thinks this is big enough to tower over Rigel, but it is not.
+    Stella and Bella continue in space. Earth not even visible at this distance, and The Sun is just one shiny dot in the background among many.
+    ORION visible far ahead in the distance.
+    Gas, dust, and nothingness. Stella says she feels small, so Bella makes Stella the size of the SUN! 
+    Stella thinks this is big enough to tower over Rigel.
     
 
--- EXT Outer Space -Orbiting Rigel - NIGHT
-    bright blue supergiant Rigel 
+-- EXT Outer Space -Orbiting blue supergiant Rigel - NIGHT
         Mass = 21±3 M☉
         Radius = 78.9±7.4 R☉
         Luminosity = 120,000 L☉
-    starspots on Rigel cooler and DARKER than the rest of the star. Like sunspots. A now Sun-sized Stella still dwarfed by blue supergiant Rigel. Rigel is a multi-star system.
+    Starspots on Rigel cooler and DARKER than the rest of the star. Like sunspots. A now Sun-sized Stella still dwarfed by blue-white supergiant. Bella shades them before they get to close, light is blinding. Rigel also makes lots of low-mid frequency humming sounds.
 
 -- EXT Outer Space NEAR Alnitak in Orion's Belt - NIGHT
         -- The stars of the Belt - Alnitak, Alnilam, Mintaka. Stars of the belt are also known as Three Kings or Three Sisters. Alnitak and Mintaka are multi-star systems. 

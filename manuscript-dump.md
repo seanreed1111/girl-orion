@@ -12,22 +12,22 @@ ONLY FOR WRITING DRAFTS that could actually be in the picture book
     In the sky for all to see!
 
 
-After a looong Christmas day full of toys and fun and family Stella took her new doll upstairs and got ready for bed. She arranged her people on the bed the way she liked them, so they could all look out the window But there was one more thing to do.
 
-The stars gazed in at her window.
+-- BEGINNING
 
-she arranged her people on the bed to make sure they could all see. 
-She opened her window to make sure there was a clear view from her bed. 
-And opened her curtain but discovered the clouds overhead. SHE COULDN’T SEE THE STARS. 
-MOMMY, WHAT’S THE WEATHER TOMORROW? 
-IS IT CLOUDY AT NIGHT?
-IT WILL BE CLOUDY ALL WEEK, BABY. I’m SORRY.
-The thing she’d been thinking about all day, looking up at the stars with her new STAR DOLL, was not possible now. 
-It would have to wait under tomorrow, or whatever day the clouds cleared. 
+S: The first thing Bell ever said to me was this. 
+"Hullo, Stella. I sang a long time before you finally woke up."
+
+You know what's funny? I remember hearing someone humming, the sound of the Bell signing came into whatever dream I was having then! The song was "Twinkle Twinkle Little Star". I don't remember what I did with the song in my dream but I remember that I rolled over and looked at Bell, and BELL WAS THE ONE WHO WAS HUMMING.
+
+I rolled over, and looked at her, and that's when she said "Hullo, Stella."
 
 
+Now, I probably should have asked her a lot of questions right then, like "How come you can talk?" and other stuff like that. But it just didn't occur to me at the time.  I did figure I should say SOMETHING so as to not be rude. 
+I didn't know what you were *supposed* to say when dolls start talking to you, so all I could think of to say was "Hi, Bella"
 
-BEGINNING
+
+--BEGINNING
 
 When I was seven I got a magical doll for Christmas. Her name is Bell. It is short for Bellatrix, but nobody ever calls her that.
 She is named after the giant blue star in the constellation Orion. That’s Bellatrix the star right there. [points on star map]
@@ -56,20 +56,14 @@ As it turned out, Rigel *did* like the spot I gave him. It was super comfy, just
 
 But I didn't notice, at least not at first. I was already fast asleep."
 
+
+
+----BEGINNING
 After a looong Christmas day full of toys and fun and family I took my new doll upstairs and got ready for bed. I arranged my people on the bed the way I liked them, so they could all look out the window But there was one more thing to do.
 
 she arranged her people on the bed to make sure they could all see. She opened her window to make sure there was a clear view from her bed. And opened her curtain but discovered the clouds overhead. SHE COULDN’T SEE THE STARS. The thing she’d been thinking about all day, looking up at the stars with her new STAR DOLL, was not possible now. It would have to wait under tomorrow, or whatever day the clouds cleared. ways 
 
-S: The first thing Bell ever said to me was this. 
-"Hullo, Stella. I sang a long time before you finally woke up."
 
-You know what's funny? I remember hearing someone humming, the sound of the Bell signing came into whatever dream I was having then! The song was "Twinkle Twinkle Little Star". I don't remember what I did with the song in my dream but I remember that I rolled over and looked at Bell, and BELL WAS THE ONE WHO WAS HUMMING.
-
-I rolled over, and looked at her, and that's when she said "Hullo, Stella."
-
-
-Now, I probably should have asked her a lot of questions right then, like "How come you can talk?" and other stuff like that. But it just didn't occur to me at the time.  I did figure I should say SOMETHING so as to not be rude. 
-I didn't know what you were *supposed* to say when dolls start talking to you, so all I could think of to say was "Hi, Bella"
 
 
 
@@ -100,7 +94,7 @@ The question of thinking of a joke took Stella by surprise. Bell really looked l
 
 
 B: Do you know what stars are? I mean, what they are made of, and what they look like up close?
-No one had ever asked me that before. I never thought about them as REAL THINGS, thye were just little lights high up in the sky.
+No one had ever asked me that before. I never thought about them as REAL THINGS, THEY were just little lights high up in the sky.
 They all looked mostly the same, except some were brighter and some were dimmer. But they aren't the same at all. They have different colors and different sizes. Some are super hot, even hotter than our Sun. And some are colder. Also, they spin! Just like the Earth spins, just like our Sun spins.
 
 --Stella clutches a picture of Orion, with only Betelgeuse and Rigel and Orion's Belt marked.
@@ -134,3 +128,15 @@ I just remembered what I did see, and the fun we had together, and even though I
 I wanted to take something back with me as a souvenir of my trip. We couldn't get close enough to touch ANYTHING, and I dn't even know there would have been anything to touch, just heat and light and warmth, like our Sun pressing on my face, all the light presses down on you and you don't know how you can feel light, but you do. I did. I still do. I remember how it feels. If I stand quiet and try really hard I still feel it. So I guess I brought something how from my trip after all.
 
 
+After a looong Christmas day full of toys and fun and family Stella took her new doll upstairs and got ready for bed. She arranged her people on the bed the way she liked them, so they could all look out the window But there was one more thing to do.
+
+The stars gazed in at her window.
+
+she arranged her people on the bed to make sure they could all see. 
+She opened her window to make sure there was a clear view from her bed. 
+And opened her curtain but discovered the clouds overhead. SHE COULDN’T SEE THE STARS. 
+MOMMY, WHAT’S THE WEATHER TOMORROW? 
+IS IT CLOUDY AT NIGHT?
+IT WILL BE CLOUDY ALL WEEK, BABY. I’m SORRY.
+The thing she’d been thinking about all day, looking up at the stars with her new STAR DOLL, was not possible now. 
+It would have to wait under tomorrow, or whatever day the clouds cleared. 
