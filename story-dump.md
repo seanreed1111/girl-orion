@@ -60,19 +60,26 @@ Because I thought I should, Tyra answered.
 Well, you shouldn’t, replied Bella.
 
 
+OMG Stella GROWS AND SHRINKS TO STAR SIZE LIKE ALICE IN WONDERLAND. 
+Perfect for showing the relative sizes of stars in an easy way. 
+Even if she were as big as the sun, she would still be small next to Betelgeuse and Rigel. 
+1-
+One of the things that is important for friends is listening
+
+Bella wasn’t being a good friend because she didnt listen to 
+Stella’s fears at first. 
+She was treating the trip like something she’s done lots of times. 
+But it is Stella’s FIRST time. and she needed to feel more 
+comfortable, to go slower.
+
+    When Bella realizes this, she CHANGES. She becomes a friend, and helps Stella get over the fear, rather than ignoring Stella’s fears as unimportant.
+
+    *That* is when Bella starts to tell jokes to make Stella laugh, to make her comfortable in this brand new environment of space.
+
+
+Stella gets tired and they return back home. Stella gives Bell the prime space next to her on her bed, and they both go to sleep after their long adventure.
 
 manuscript
-
-Page 1
-After a long Christmas day full of presents and food and family Tyra took her new doll upstairs and got ready for bed. 
-She arranged her people on the bed the way she liked them, so they could all look out the window.
- But there was one more thing to do.
-
-she arranged her people on the bed to make sure they could all see. 
-She opened her window to make sure there was a clear view from her bed. 
-And opened her curtain but discovered the clouds overhead. SHE COULDN’T SEE THE STARS. 
-The thing she’d been thinking about all day, looking up at the stars with her new STAR DOLL, was not possible now. 
-It would have to wait under tomorrow, or whatever day the clouds cleared. 
 
 
 

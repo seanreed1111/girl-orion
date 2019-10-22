@@ -1,4 +1,5 @@
 #Bellatrix.md
+NOTES ON Bellatrix's personality
 
 Bellatrix and Betelgeuse
 Rigel and Saiph

@@ -44,11 +44,11 @@ When they got her for me my mom and dad didn’t know she was magical. They stil
 --BEGINNING
 "Two years ago when I was still little my mom bought me a new doll. I mean, she always bought dolls for me so I already had tons of dolls, but Bell was special. This is the story of the first night Bell spent at our house."
 
-Bell was a Christmas gift. She was bright blue and round like a glove and sooo soft. Also, he was squishy! I liked that I could hug him and even sleep with my head on him and he'd get a little mushed where my head was and then slowly puff back up into a ball again.
+Bell was a Christmas gift. She was bright blue and round like a glove and sooo soft. Also, she was squishy! I liked that I could hug him and even sleep with my head on him and he'd get a little mushed where my head was and then slowly puff back up into a ball again.
 
-"When it was time for bed I put on my pjs and brought Rigel to my room so he could meet my other stuffed animals.
+"When it was time for bed I put on my pjs and brought Bell to my room so she could meet my other stuffed animals.
 
-Hi everyone, I said. This is Bell, he's a star. Mom just got him for me. Rigel, this is Grape the Monkey. And this is Mack the Mouse. And over there is Dottie the Tiger, and next to her is Sammy the Owl. 
+Hi everyone, I said. This is Bell, she's a star. Mom just got her for me. Rigel, this is Grape the Monkey. And this is Mack the Mouse. And over there is Dottie the Tiger, and next to her is Sammy the Owl. 
 
 You can sleep with all of us on my bed, I  said. I made you a space in the most comfy part. I hope you like it, I said.
 
