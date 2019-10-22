@@ -42,8 +42,17 @@ By the time I looked back I could see our Sun as a yellowish dot in the sky, no 
 
 I clutched Bell tightly. I remember pretending to not be afraid. I was in outer space! So I expected to be cold, and I expected to not be able to breath because there's no air in space. But I was fine, and wasn't the least bit cold, and I was breathing normally. (show the faint field shimmering around both of them)
 
+S: Can we be out here? Can I be out here? Space is cold. And there's no air to breathe.
+B: Well, how do you feel? Right now.
+S: Fine.
+B: Breathing ok? 
+S: Yes.
+B: Cold?
+S: No.
+B: Okay, then. Everything's great. Let's keep going, hmmmmmn?
 
-I should go get my robe. And socks! I’m going to need some warm socks so can we go back, because my feet get really ...
+S:I should go get my robe. And socks! I’m going to need some warm socks so can we go back, because my feet get really ...
+S: It’s Thursday, isn’t it? I never could get the hang of Thursdays.
 B:Tell me a joke.
 S:what?!
 B:Don’t you know any jokes?
@@ -60,8 +69,36 @@ Bella got brighter the closer they got to her namesake star. Just a little bit b
 
 --Stella clutches a picture of Orion, with only Betelgeuse and Rigel and Orion's Belt marked.
 
+B: People have looked up at the stars in the sky as long as people have been around. 
+Sometimes they would see patterns of bright stars and imagine they saw the shape of people or animals in the night sky.
+We call these groups of stars constellations.
 
--- ENDING
+S: I didn't know that stars have different colors!
+
+B:How the close the stars look from Earth is different than how far away they really are from each other.
+
+
+
+--- *Near Betelgeuse*
+S: Why does Betelgeuse look like that?, I asked. I'd expected it to be perfectly round like the other stars I'd seen. 
+
+B: With Betelgeuse in the place of our Sun, Mercury, Venus, Earth, Mars, and Jupiter would all be *inside* of it. 
+B: Betelgeuse is like a volcano, spews out parts of itself for everyone to see.
+B: Stars are snakes.  They don’t have skin but they do shed pieces of themselves out into space.  Fast moving particles that move in big groups together just like the wind.
+
+Stars make sounds. They rattle and hum. 
+
+Stars are alive. The surface is constantly moving and changing, seething. Remarkable to watch. 
+
+
+-- *Near Bellatrix*
+B: Isn't she beautiful?
+S: Yes she really is.
+B: Blue is my favorite color.
+S: Because you are blue?
+B: No. Because she is.
+
+-- *ENDING*
 
 I went to sleep somewhere on the long trip home.
 Bell said she tried to wake me when we were passing near the Sun but I didn’t budge. That ended up being ok because Bell and I went to see the Sun another night not long after.
